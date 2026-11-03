@@ -1,10 +1,16 @@
-worlds laziest github
+
+
+
+
+
+
+
 
 <p align="center">
 	<img width="50" height="50" alt="tumblr-9acd9841321285165dc9a7d458952470-2649a36d-75" src="https://github.com/user-attachments/assets/4cf14f2e-82bd-4509-bc93-f66e1e32dbee" />
 <img width="800" height="50" alt="tumblr_368e665946d721b875aa6069e52add1a_9b1ba917_2048" src="https://github.com/user-attachments/assets/3cef2159-f70a-4a47-895b-e83df1b5a923" /><img width="50" height="50" alt="tumblr-9acd9841321285165dc9a7d458952470-2649a36d-75" src="https://github.com/user-attachments/assets/4cf14f2e-82bd-4509-bc93-f66e1e32dbee" />
 
-<p align="right">
+<p align="center">
 	<img width="700" height="600" alt="Untitled59_20261103125408-removebg-preview" src="https://github.com/user-attachments/assets/17680d39-1b0c-48ef-972a-7824930d6aca" />
 
 
@@ -41,4 +47,13 @@ worlds laziest github
 	  <p>Dont come up to one of my cosplays, and start trying to RP , I'm all fine with our ponies being in the same fandom or you showing me you're also in the fandom!, but don't turn it into a RP please
 	  <p>Dont take it personally if I don't respond at all, I may just not want to, or still don't notice it ! 
 
+
+
+
+
+
+
+----
+
+worlds laziest GitHub , I will never put to much effort in these things bro
 
